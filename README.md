@@ -1,0 +1,2 @@
+# njy.zamzz
+belajar
